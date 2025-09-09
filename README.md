@@ -1,0 +1,21 @@
+# TRY-HACK-ME---OSINT-ROOMS
+
+HEY FOLKS, THIS REPO IS FOR MY FINDING OF ANSWER'S TRY HACK ME OSINT ROOMS
+ILL BE UPLOADING ALL THE ANSWERS AND A SHORT NOT TO FIND THAT, WHICH MAY HELP YOU GUYS
+
+1) KAFFEESEC
+
+   TASK 2 - STORY
+   -- KS{H}
+   --KS{Thomas Straussman}
+
+   TASK 3 - LETS GET STARTED
+   -- Christmas
+   -- birth date 19 th dec 1990
+   -- @FHodgelink
+   -- 12-20-1990
+
+   TASK 4 - SPIDER.. WHAT!
+   -- 
+   --
+   --
