@@ -16,6 +16,29 @@ ILL BE UPLOADING ALL THE ANSWERS AND A SHORT NOT TO FIND THAT, WHICH MAY HELP YO
    -- 12-20-1990
 
    TASK 4 - SPIDER.. WHAT!
-   -- 
-   --
-   --
+   -- sfp_accounts
+   --ks{1346173539712380929}
+
+   TASK 5 - CONNECTIONS
+   -- Koblenz, Germany
+   -- December 25th
+   -- Gotank
+   -- 90 Day Fiancee
+
+   TASK 6 - TURN BACK THE CLOCK
+   -- HANS MINIK
+   -- nuuk, greenland
+   -- ks{ww4ju}
+   -- ks{1qaz2wsx}
+   -- emilia moller
+   -- ks{straussmanthom@mail.com}
+
+      -------------------------------------------------------------------- COMPLETED -------------------------------------------------------------------------------
+
+
+
+
+
+
+
+   
